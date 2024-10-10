@@ -1,0 +1,1 @@
+SMKN 2 BUDURAN berdiri pada tahun 1938
